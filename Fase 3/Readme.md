@@ -1,1 +1,1 @@
-
+El video del producto final que se adjunta en la presentación final lo puede visualizar nuestro profesor Fernando accediendo al siguiente enlace de drive https://drive.google.com/file/d/1D2PVtGF_Kq6_7Vay5qnN9zdqK1va1uHH/view?usp=sharing
